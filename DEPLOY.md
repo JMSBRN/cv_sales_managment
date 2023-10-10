@@ -1,0 +1,1 @@
+https://jmsbrn.github.io/cv_sales_managment/cv_sales_managment_eng.pdf
